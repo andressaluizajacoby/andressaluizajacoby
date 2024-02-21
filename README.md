@@ -1,7 +1,7 @@
 Meu nome é **Andressa Luiza Jacoby**
 
-*Tenho 15 anos*
+ ★*Tenho 15 anos*
 
-*Atualmente moro em Maripá, Paraná*
+ ★*Atualmente moro em Maripá, Paraná*
 
-*Estudo no Colégio Estadual Pio XII*
+ ★*Estudo no Colégio Estadual Pio XII*
