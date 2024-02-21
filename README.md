@@ -1,4 +1,4 @@
-Meu nome é **Andressa LUiza Jacoby**
+Meu nome é **Andressa Luiza Jacoby**
 
 *Tenho 15 anos*
 
